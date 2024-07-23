@@ -1,1 +1,1 @@
-![20240619_225451](https://github.com/SGDLR/sgdlr/assets/130892814/27f74763-99b7-479c-b366-5d206c0b2142)
+![0ff0352119ab4bca99b7475e2c719e30](https://github.com/user-attachments/assets/977ca959-8a73-49b4-9b4d-295878335ed2)
